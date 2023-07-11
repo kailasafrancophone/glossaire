@@ -2,6 +2,8 @@
 
 **Acharya** : maître spirituel
 
+**Apath Sanyasi** : Un Apath Sanyasi est un moine qui vit chez lui et qui vit selon les 5 principes d’un Sanyasi (Ahimsa – non-violence, Satya – vérité, Aparigraha – minimalisme, Asteya – ne pas voler, Brahmacharya – vivre comme Dieu, célibat, chasteté). Il pratique le Yoga, la Puja et les Panchas Kriyas (techniques de détoxification : Nettoyage des yeux, du nez avec le neti, du rectum avec l’enema et boire du Neem). Il regarde le satsang quotidien et observe les enseignements spirituels du Guru.
+
 **Bhasma** : cendre sacrée (voir aussi Vibhuti)
 
 **Guru** : maître. Celui qui mène de Gu (obscurité) à Ru (lumière), qui libère du cycle des vivants et des morts.
