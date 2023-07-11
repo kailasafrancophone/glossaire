@@ -18,6 +18,8 @@
 
 **Maya** : ce qui n’est pas la réalité mais donne l’illusion du réel.
 
+**Parashakti** : L'Energie Existentielle représentée sous une forme féminine.
+
 **Shakti** : énergie primordial permet le passage du concept à la matérialisation.
 
 **Samadhi** : état sans mental et sans pensée. Litt. Retrouver son état d’origine, son état libéré.
